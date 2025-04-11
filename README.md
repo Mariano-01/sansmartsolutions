@@ -12,9 +12,9 @@ Nossas **privadas inteligentes** não são apenas sanitários, são mini usinas 
 - 🌾 **Fertilizantes naturais** → Para solos mais ricos e comida de verdade.
 - 🌍 **Redução de emissões** → Menos metano, mais planeta.
 
-Criado por **Yoshikage Kira**, um visionário de 33 anos com uma criatividade explosiva, decidiu transformar o que todos evitam em uma solução para os maiores problemas da humanidade.
+Criado por **Yoshikage Kira**, um visionário de 33 anos com uma criatividade **explosiva**, decidiu transformar o que todos evitam em uma solução para os maiores problemas da humanidade.
 
-### Por quê?
+### 💥 Por quê?
 
 Porque enquanto governos discutem e empresas demoram, nós escolhemos agir.  
 Porque o mundo não precisa de soluções inteligentes, ousadas e sim sanitárias.
