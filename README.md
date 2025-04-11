@@ -1,6 +1,6 @@
 # 💩 SanSmart Solutions
 
-## 🌱 Uma Revolução Sustentável Começa no Banheiro
+## 😺💣 Uma Revolução Sustentável Começa no Banheiro
 
 Bem-vindo à SanSmart Solutions onde o futuro depende de uma defecada bem dada.
 
@@ -17,9 +17,7 @@ Criado por **Yoshikage Kira**, um visionário de 33 anos com uma criatividade ex
 ### Por quê?
 
 Porque enquanto governos discutem e empresas demoram, nós escolhemos agir.  
-Porque o mundo precisa de soluções inteligentes, ousadas e sim sanitárias.
-
----
+Porque o mundo não precisa de soluções inteligentes, ousadas e sim sanitárias.
 
 🧪 Quer colaborar?  
 🌐 Quer saber mais?  
