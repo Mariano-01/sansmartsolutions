@@ -25,4 +25,4 @@ Porque o mundo precisa de soluções inteligentes, ousadas e sim sanitárias.
 🌐 Quer saber mais?  
 🚀 Ou só quer uma privada que salva o mundo?
 
-> Tudo começa com uma descarga e uma cagada.
+> Tudo começa com uma descarga e uma cagada. 💩
